@@ -1,4 +1,4 @@
-# Practise
+# Practiсe
 
 ## Вариант 13
 
